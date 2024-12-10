@@ -2,7 +2,7 @@
 
 meu nome é raul 
 
-- sou engraçado e timido
+- sou sempre eu mesmo.
 
   ### vocÊ pode entrar em contato comigo
   00001112430507sp@al.educacao.so.gov.br
